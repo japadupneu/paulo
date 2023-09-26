@@ -5,7 +5,6 @@ Em outros termos, significa todo tipo de tortura física ou verbal que atormenta
 Ainda que esse tipo de agressão tenha sempre existido, o termo foi cunhado na década de 70 pelo psicólogo sueco Dan Olweus.
 
 O Bullying pode ocorrer em qualquer ambiente onde existe o contato interpessoal, seja no clube, na igreja, na própria família ou na escola.
-![](https://www.canva.com/design/DAFvLGsJX54/wW_asisTEaKe2_4ugBQOhQ/edit?utm_content=DAFvLGsJX54&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutto)
 Aos poucos o combate efetivo ao bullying vem ganhando importância na mídia e em ONG’s empenhadas em campanhas de anti-bullying. Isso porque essa prática tem aumentado consideravelmente nos últimos anos no país e no mundo.
 
 Conflitos entre crianças e adolescentes são comuns, pois trata-se de uma fase de insegurança e autoafirmação. Porém, quando os desentendimentos são frequentes e partem para humilhações, é aí que o bullying prolifera.
@@ -27,4 +26,4 @@ Geralmente, as vítimas do bullying têm vergonha e medo de falar à família so
 As vítimas de agressão física ou verbal ficam marcadas e essa ferida pode se perpetuar por toda a vida. Em alguns casos, a ajuda psicológica é fundamental para amenizar a difícil convivência com memórias tão dolorosas.
 
 Aqui, portanto, cabem aos pais e familiares notarem os sintomas das crianças e/ou adolescentes. Com isso, se perceber alguma diferença no comportamento, é importante contactar os responsáveis da escola e ainda ter uma conversa franca com a pessoa que foi agredida.
-
+![](https://1.bp.blogspot.com/-7mK_5TCNXqo/Te2xIro_MnI/AAAAAAAABAI/0DmJ2yWlFRY/s1600/logo_bullying_naotemgraca.png)
